@@ -5,7 +5,7 @@ I am currently trying to come to terms with the fact that in order to sleep, you
 - Music enthusiast 🎶
 - Gamer at heart 🎮 
 - Sports fan 🏆
-- Proud black cat owner 🐈 (or rather a proud human owned by a black cat) 😶
+- Proud human owned by a black cat 😶
 
 Remember folks:\
 Life before death. Strength before weakness. Journey before destination. 🙏
