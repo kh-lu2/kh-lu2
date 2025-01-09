@@ -9,3 +9,6 @@ I am currently trying to come to terms with the fact that in order to sleep, you
 
 Remember folks:\
 Life before death. Strength before weakness. Journey before destination. 🙏
+
+
+https://kh-lu2.github.io/Fox-Website/
