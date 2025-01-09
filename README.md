@@ -11,4 +11,4 @@ Remember folks:\
 Life before death. Strength before weakness. Journey before destination. 🙏
 
 
-https://kh-lu2.github.io/Fox-Website/
+https://kh-lu2.github.io/Hacking-Foxes
