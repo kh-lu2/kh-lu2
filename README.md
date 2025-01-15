@@ -13,3 +13,7 @@ Life before death. Strength before weakness. Journey before destination. 🙏
 
 https://kh-lu2.github.io/Hacking-Foxes \
 https://netlify-quickstart.netlify.app/
+
+How I wish my papers looked like in the future: \
+https://paperswithcode.com/paper/how-to-train-your-dragon-diverse-augmentation \
+https://github.com/kh-lu2/DRAGON
